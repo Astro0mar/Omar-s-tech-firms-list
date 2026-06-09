@@ -1,0 +1,2381 @@
+
+Areeb technology 
+
+Edafa
+
+Gameball
+
+Code81
+
+Pixelogic media
+
+Roaya
+
+Dxc
+
+IBM
+
+Vois
+
+Orange egypt 
+
+Orange business 
+
+Vodafone 
+
+Noon
+
+Thndr
+
+Telda
+
+Breadfast
+
+Nawi
+
+Ejada
+
+Fimple 
+
+Money fellows
+
+Bank masr
+
+34ML
+
+Advansys
+
+Alahly momken
+
+RSA
+
+Aman holding
+
+Bbi
+
+Bosta 
+
+E finance 
+
+Giza system 
+
+Fixed solutions 
+
+Incorta 
+
+Rehabitaire
+
+Sumrege 
+
+Pwc
+
+Rackspace
+
+Blnk
+
+Itworx
+
+Link development 
+
+Paysky
+
+Pharos solutions 
+
+Gs1
+
+Unifonic
+
+Ist networks 
+
+Jobzella
+
+Vilify
+
+Mondia
+
+Salt
+
+Alstom
+
+Dphish
+
+Crocosoft( python)
+
+Vctors
+
+Lxt
+
+Webalo×
+
+Careem 
+
+TrianglZ llc
+
+Zeal
+
+CrossWorkers
+
+Codescalers 
+
+Beltone
+
+Sheen
+
+
+Dgtera
+
+
+
+Levelset 
+
+
+
+Tempo
+
+
+
+United ofoq
+
+Saqaya 
+
+
+Thryve 
+
+Onecard 
+
+
+Payrails 
+
+
+Beetleware
+
+
+Datagrear x 
+
+
+Camel lab
+
+
+Qoyod
+
+Ntsal 
+
+
+cloudypedia
+
+
+Lime
+
+Villa
+
+Holouly(django)
+
+
+Datavisyn 
+
+Modupay 
+
+2p perfect presentation 
+
+Kenzz
+
+
+Registfy 
+
+
+Dnext intelligence 
+
+
+Saudi Market
+
+
+Henkel 
+
+Andela 
+
+Gradion
+
+Almatar
+
+Qurba
+
+
+Onika
+
+Rdi
+
+
+Synabse 
+
+700apps
+
+
+
+Yassir
+
+Tamara
+
+
+Hyper solutions 
+
+Tahaluf(.net)
+
+Wind integrated solutions 
+
+iVolve
+
+
+Bayzat
+
+
+Arcsen 
+
+
+Exa host
+
+
+Evernex
+
+
+SCFHS
+
+Bayantech
+
+Resal
+
+Trendbox 
+
+
+
+KnowledgeNet
+
+Arpu plus
+
+
+Soum 
+
+Paymentology 
+
+
+Ejada
+
+
+Espace 
+
+
+
+CIB
+
+Bank misr
+
+Agoda
+
+
+Yodawy
+
+Accenture
+
+Intellias
+
+
+Mujez
+
+
+Aman holding 
+
+Jari solutions 
+
+Mkalmat(maadi)
+
+Integrant 
+
+Magnet
+
+Lean technologies 
+
+
+
+
+Paymob
+
+
+Nextcare( dubai)
+
+Analog(dubai)
+
+Coca cola
+
+Capgemini
+
+
+ISYS AI
+
+smartera3s
+
+
+Swatx 
+
+Emak
+
+Esense
+
+Blue holding 
+
+Darkmon 
+
+
+Qardy
+
+Obelion 
+
+
+Takamol holding 
+
+Erada finance
+
+Modeso
+
+ Orion Digital Solutions
+
+Infosysta ( lebanon)
+
+Apple(dublin)
+
+Nividia(Singapore)
+
+Bytedance()
+
+CFI finical group
+
+Beltone
+
+Ist networks 
+
+Forschungszentrum Jülich
+
+Stratechps 
+
+
+
+Opsera
+
+
+IQraa
+
+
+
+Clicksdigital
+
+
+Kiwe
+
+
+Arrow electronics 
+
+Sinch( sweden)
+
+Valu
+
+
+
+
+ITqany
+
+Xensam(sweden)
+
+Ntg
+
+dorra
+
+SGT
+
+Awaed 
+
+Kalshi
+
+Forus
+
+Smart digital services 
+
+Dealapp
+
+Noventiq 
+
+
+
+Cvector 
+
+Fortanix 
+
+Cme
+
+
+Emircom
+
+Tru
+
+Amcs group
+
+
+Ripple egypt 
+
+Arabian systems 
+
+The Saudi national Bank
+
+
+Risskov
+
+Tbay 
+
+
+Xenon
+
+VeroAI
+
+
+Meem development 
+
+Cit vericash
+
+Noqood holding 
+
+
+Emdad by elm
+
+Sansaone
+
+Emapta global
+
+
+Hybytes
+
+Excelia(spain)
+
+Firespring(usa)
+
+
+Bjak(singapore)
+
+Comblack
+
+Taqniyat
+
+Strativ group ( sweden)
+
+Thought labs Belgium 
+
+
+Instrumentation technologies 
+
+Simply.tv (Denmark)
+
+Nebius
+
+
+Sendcloud
+
+Bitvavo
+
+
+Mambu
+
+Sympower
+
+
+Mendel.ai
+
+Fotopia(ml)
+
+
+Dstny
+
+
+Synopsys
+
+Immediate 
+
+Ecs
+
+Bitbang llc
+
+Openwater
+
+PrimeIT(Lisbon)
+
+
+Optum
+
+
+Hello fresh
+
+Flixbus
+
+Check24
+
+Workmotion 
+
+Linde engineering 
+
+
+Veridos
+
+Day force
+
+Wiraa 
+
+
+Axis
+
+
+Fyul
+
+
+Hcl
+
+
+Wipro
+
+GB corp 
+
+Misr technology services 
+
+Network International 
+
+Arib fintech
+
+
+Souhoola
+
+Jadeer
+
+
+Ht immo
+
+
+Hcl tech
+
+Kwan
+
+
+Aubay purtogal 
+
+
+Roku
+
+
+Zürcher kantonalbank
+
+Credera 
+
+Omniops
+
+Trella
+
+Alkan telecom
+
+Trade Republic 
+
+Automattic
+
+eteam
+
+Ansys
+
+
+Ecosio 
+
+Rabobank
+
+
+Purestorage(ksa)
+
+
+Arcsen(sales force)
+
+
+Devoteam
+
+
+Adacta
+
+
+Beyond ED
+
+talabat
+
+Boutiqaat 
+
+Agolo
+
+Shop brain
+
+Halan
+
+DG-well
+
+Aspire Jordan 
+
+Intellias
+
+2p perfect presentation 
+
+MNT halan
+
+Datex
+
+Edrak software 
+
+Upland software 
+
+Opream
+
+Nancy AI
+
+EDECS
+
+
+Trufla
+
+
+Lensec
+
+
+Palm
+
+
+Nano health suite
+
+M pesa afrika
+
+SSV labs
+
+
+Elmin7a
+
+Si vision
+
+Hitachi rail
+
+Group ib
+
+Lyrise
+
+
+Toters 
+
+Binghatti
+
+Fanatics( usa)
+
+Ionos(usa)
+
+
+
+ProgressSoft corporation 
+
+Kloia
+
+Applause
+
+
+Moonpay 
+
+Risk labs
+
+99 developer ( backend)
+
+Pepsico 
+
+Re partners
+
+
+Proxiad 
+
+Queen tech solutions 
+
+
+Apa group
+
+
+Healthtom
+
+Submer
+
+Proton
+
+Masterworks
+
+
+Conservmisr 
+
+
+Steer studios(ksa)
+
+
+Nhc
+
+Icura 
+
+3i-Vision (underpaid)
+
+NTP software 
+
+Celfocus
+
+Infrabel 
+
+
+Traderware 
+
+
+CureMD
+
+Eva pharma
+
+
+
+Swisscom 
+
+Mia-platform
+
+Zebra technologies 
+
+Oxd
+
+
+Quid
+
+
+Bol
+
+Crownpeak product discovery 
+
+
+Digikala 
+
+
+Rbc
+
+Tune
+
+Esri
+
+
+Scandiweb
+
+
+Roku
+
+DFDS
+
+S2 global 
+
+Equitas
+
+Qlik(canada)
+
+Soho
+
+Linnk (ksa)
+
+
+
+
+Candis
+
+
+Capoom
+
+
+Zoolatech
+
+
+
+IJD creatives
+
+Capiter 
+
+
+Revodata
+
+
+Technology wave( itsm)
+
+Just relate
+
+BP
+
+
+Superblocks
+
+D360 Bank
+
+Little fuse
+
+ISFP
+
+FutureOn digital 
+
+Oscar
+
+
+Jatdev
+
+Mashreq
+
+
+Enza
+
+
+Payever
+
+Fpt software 
+
+Lafosse
+
+AHBS
+
+Prime 21 AG
+
+Solvex
+
+
+CoorB
+
+
+Telgani
+
+
+Zero&one
+
+Gradion
+
+Riskrice 
+
+Lightium ( Switzerland)
+
+Vero( usa)
+
+Emerald
+
+
+Lego digital play(uk)
+
+Helsing
+
+Reluna 
+
+
+Carwah
+
+
+RE partners 
+
+
+Teradata
+
+
+Swisscom 
+
+Atos
+
+
+
+Juhi 
+
+
+Widebot 
+
+Multiverse computing 
+
+Talon one
+
+Cirql one
+
+Pixonal 
+
+
+Sarwa 
+
+
+Egabi solutions 
+
+
+Asml
+
+
+Pawapay
+
+Omp 
+
+Patient21
+
+Talk remit
+
+Seez
+
+Infovista
+
+
+Mondia
+
+Nodeshift
+
+IT visionary 
+
+PMG
+
+Daopay
+
+Smart sigma
+
+AIM technologies 
+
+Nine mile
+
+Nutanix
+
+OMP
+
+Sogeti 
+
+
+Grubhub
+
+Taktile 
+
+Collibra 
+
+Synchron
+
+
+Pexprt
+
+
+Celfocus Software
+
+
+CNTXT
+
+Algo
+
+
+Captivatelq
+
+Ada meher 
+
+
+Forte cloud
+
+Sanna commerce 
+
+Crossover
+
+Fraus
+
+
+Vidscola 
+
+Intercom
+Coorb
+
+
+
+Ineffable intelligence 
+
+IPRally
+
+
+MDX solutions middle East
+
+Lips healthcare
+
+Qanoniah
+
+Gs1 egypt 
+
+Peerlogic
+
+Strava 
+
+Payr
+
+Viavi solutions 
+
+
+
+
+
+Hrdf
+
+Sundday 
+
+Code zone
+
+Saned health
+
+Burgan Bank
+
+
+Aramco digital 
+
+Mansoft
+
+Teoresi group
+
+Vistra 
+
+Voize (germany)
+
+Wio Bank
+
+Ocucon 
+
+Mandolin ( USA )
+
+
+Hyre
+
+Pylon
+
+Bcg x
+
+Spendhq 
+
+Masrpay 
+
+Nawy
+
+Cloud 11
+
+Soulco
+
+
+Jeel
+
+Aspire Jordan
+
+Orange cyberdefense
+
+Tgs(hpc)
+
+Abbeal 
+
+
+Intact
+
+Bryntum
+
+Saudi credit information 
+
+Umatr
+
+Amana
+
+Thiqal 
+
+Sary 
+
+Eskola
+
+
+Paralead
+
+Waffarha 
+
+iOCO
+
+FortStak
+
+Empiric 
+
+
+DNB
+
+
+Onmed
+
+
+Index holding 
+
+Sutherland( devsecops)
+
+Awali
+
+English Central
+
+Edenred Italy
+
+UST
+
+Ninetech
+
+Atlas copco 
+
+Tech9
+
+Hydrosat 
+
+D4 insight 
+
+Fulcrum digital 
+
+Erada
+
+Saqr
+
+Exceeders
+
+
+G2i
+
+
+Baseet 
+
+Eldelta electronic systems 
+
+Uney
+
+
+NexaTG
+
+
+Quantuma 
+
+
+Montash 
+
+Flynas 
+
+Intaso(uk)
+
+Tamem
+
+
+Captello
+
+Yelp
+
+Qonto
+
+Center3
+
+
+Sofia stars
+
+The exploration company 
+
+
+Vultara 
+
+Wisys 
+
+Salam
+Cloudzlab( salesforce)
+
+Seera
+
+IQVIA
+
+Visible stars
+
+Areeb technology 
+
+Edafa 
+
+Gameball 
+
+Code81 
+
+Pixelogic media 
+
+Roaya 
+
+Dxc 
+
+IBM 
+
+Vois 
+
+Orange egypt 
+
+Orange business 
+
+Vodafone 
+
+Noon 
+
+Thndr 
+
+Telda 
+
+Breadfast 
+
+Nawi 
+
+Ejada 
+
+Fimple 
+
+Money fellows 
+
+Bank masr 
+
+34ML 
+
+Advansys 
+
+Alahly momken 
+
+RSA 
+
+Aman holding 
+
+Bbi 
+
+Bosta 
+
+E finance 
+
+Giza system 
+
+Fixed solutions 
+
+Incorta 
+
+Rehabitaire 
+
+Sumrege 
+
+Pwc 
+
+Rackspace 
+
+Blnk 
+
+Itworx 
+
+Link development 
+
+Paysky 
+
+Pharos solutions 
+
+Gs1 
+
+Unifonic 
+
+Ist networks 
+
+Jobzella 
+
+Vilify 
+
+Mondia 
+
+Salt 
+
+Alstom 
+
+Dphish 
+
+Crocosoft( python) 
+
+Vctors 
+
+Lxt 
+
+Webalo× 
+
+Careem 
+
+TrianglZ llc 
+
+Zeal 
+
+CrossWorkers 
+
+Codescalers 
+
+Beltone 
+
+Sheen
+
+
+Dgtera
+
+
+
+Levelset 
+
+
+
+Tempo
+
+
+
+United ofoq 
+
+Saqaya 
+
+
+Thryve 
+
+Onecard 
+
+
+Payrails 
+
+
+Beetleware
+
+
+Datagrear x 
+
+
+Camel lab
+
+
+Qoyod 
+
+Ntsal 
+
+
+cloudypedia
+
+
+Lime 
+
+Villa 
+
+Holouly(django)
+
+
+Datavisyn 
+
+Modupay 
+
+2p perfect presentation 
+
+Kenzz
+
+
+Registfy 
+
+
+Dnext intelligence 
+
+
+Saudi Market
+
+
+Henkel 
+
+Andela 
+
+Gradion 
+
+Almatar 
+
+Qurba
+
+
+Onika 
+
+Rdi
+
+
+Synabse 
+
+700apps
+
+
+
+Yassir 
+
+Tamara
+
+
+Hyper solutions 
+
+Tahaluf(.net) 
+
+Wind integrated solutions 
+
+iVolve
+
+
+Bayzat
+
+
+Arcsen 
+
+
+Exa host
+
+
+Evernex
+
+
+SCFHS 
+
+Bayantech 
+
+Resal 
+
+Trendbox 
+
+
+
+KnowledgeNet 
+
+Arpu plus
+
+
+Soum 
+
+Paymentology 
+
+
+Ejada
+
+
+Espace 
+
+
+
+CIB 
+
+Bank misr 
+
+Agoda
+
+
+Yodawy 
+
+Accenture 
+
+Intellias
+
+
+Mujez
+
+
+Aman holding 
+
+Jari solutions 
+
+Mkalmat(maadi) 
+
+Integrant 
+
+Magnet 
+
+Lean technologies 
+
+
+
+
+Paymob
+
+
+Nextcare( dubai) 
+
+Analog(dubai) 
+
+Coca cola 
+
+Capgemini
+
+
+ISYS AI 
+
+smartera3s
+
+
+Swatx 
+
+Emak 
+
+Esense 
+
+Blue holding 
+
+Darkmon 
+
+
+Qardy 
+
+Obelion 
+
+
+Takamol holding 
+
+Erada finance 
+
+Modeso 
+
+Orion Digital Solutions 
+
+Infosysta ( lebanon) 
+
+Apple(dublin) 
+
+Nividia(Singapore) 
+
+Bytedance() 
+
+CFI finical group 
+
+Beltone 
+
+Ist networks 
+
+Forschungszentrum Jülich 
+
+Stratechps 
+
+
+
+Opsera
+
+
+IQraa
+
+
+
+Clicksdigital
+
+
+Kiwe
+
+
+Arrow electronics 
+
+Sinch( sweden) 
+
+Valu
+
+
+
+
+ITqany 
+
+Xensam(sweden) 
+
+Ntg 
+
+dorra 
+
+SGT 
+
+Awaed 
+
+Kalshi 
+
+Forus 
+
+Smart digital services 
+
+Dealapp 
+
+Noventiq 
+
+
+
+Cvector 
+
+Fortanix 
+
+Cme
+
+
+Emircom 
+
+Tru 
+
+Amcs group
+
+
+Ripple egypt 
+
+Arabian systems 
+
+The Saudi national Bank
+
+
+Risskov 
+
+Tbay 
+
+
+Xenon 
+
+VeroAI
+
+
+Meem development 
+
+Cit vericash 
+
+Noqood holding 
+
+
+Emdad by elm 
+
+Sansaone 
+
+Emapta global
+
+
+Hybytes 
+
+Excelia(spain) 
+
+Firespring(usa)
+
+Bjak(singapore) 
+
+Comblack 
+
+Taqniyat 
+
+Strativ group ( sweden) 
+
+Thought labs Belgium 
+
+
+Instrumentation technologies 
+
+Simply.tv (Denmark) 
+
+Nebius
+
+
+Sendcloud 
+
+Bitvavo
+
+
+Mambu 
+
+Sympower
+
+
+Mendel.ai 
+
+Fotopia(ml)
+
+
+Dstny
+
+
+Synopsys 
+
+Immediate 
+
+Ecs 
+
+Bitbang llc 
+
+Openwater 
+
+PrimeIT(Lisbon)
+
+
+Optum
+
+
+Hello fresh 
+
+Flixbus 
+
+Check24 
+
+Workmotion 
+
+Linde engineering 
+
+
+Veridos 
+
+Day force 
+
+Wiraa 
+
+
+Axis
+
+
+Fyul
+
+
+Hcl
+
+
+Wipro 
+
+GB corp 
+
+Misr technology services 
+
+Network International 
+
+Arib fintech
+
+
+Souhoola 
+
+Jadeer
+
+
+Ht immo
+
+
+Hcl tech 
+
+Kwan
+
+
+Aubay purtogal 
+
+
+Roku
+
+
+Zürcher kantonalbank 
+
+Credera 
+
+Omniops 
+
+Trella 
+
+Alkan telecom 
+
+Trade Republic 
+
+Automattic 
+
+eteam 
+
+Ansys
+
+
+Ecosio 
+
+Rabobank
+
+
+Purestorage(ksa)
+
+
+Arcsen(sales force)
+
+
+Devoteam
+
+
+Adacta
+
+
+Beyond ED 
+
+talabat 
+
+Boutiqaat 
+
+Agolo 
+
+Shop brain 
+
+Halan 
+
+DG-well 
+
+Aspire Jordan 
+
+Intellias 
+
+2p perfect presentation 
+
+MNT halan 
+
+Datex 
+
+Edrak software 
+
+Upland software 
+
+Opream 
+
+Nancy AI 
+
+EDECS
+
+
+Trufla
+
+
+Lensec
+
+
+Palm
+
+
+Nano health suite 
+
+M pesa afrika 
+
+SSV labs
+
+
+Elmin7a 
+
+Si vision 
+
+Hitachi rail 
+
+Group ib 
+
+Lyrise
+
+
+Toters 
+
+Binghatti 
+
+Fanatics( usa) 
+
+Ionos(usa)
+
+
+
+ProgressSoft corporation 
+
+Kloia 
+
+Applause
+
+
+Moonpay 
+
+Risk labs 
+
+99 developer ( backend) 
+
+Pepsico 
+
+Re partners
+
+
+Proxiad 
+
+Queen tech solutions 
+
+
+Apa group
+
+
+Healthtom 
+
+Submer 
+
+Proton 
+
+Masterworks
+
+
+Conservmisr 
+
+
+Steer studios(ksa)
+
+
+Nhc 
+
+Icura 
+
+3i-Vision (underpaid) 
+
+NTP software 
+
+Celfocus 
+
+Infrabel 
+
+
+Traderware 
+
+
+CureMD 
+
+Eva pharma
+
+
+
+Swisscom 
+
+Mia-platform 
+
+Zebra technologies 
+
+Oxd
+
+
+Quid
+
+
+Bol 
+
+Crownpeak product discovery 
+
+
+Digikala 
+
+
+Rbc 
+
+Tune 
+
+Esri
+
+
+Scandiweb
+
+
+Roku 
+
+DFDS 
+
+S2 global 
+
+Equitas 
+
+Qlik(canada) 
+
+Soho 
+
+Linnk (ksa)
+
+
+
+
+Candis
+
+
+Capoom
+
+
+Zoolatech
+
+
+
+IJD creatives 
+
+Capiter 
+
+
+Revodata
+
+
+Technology wave( itsm) 
+
+Just relate 
+
+BP
+
+
+Superblocks 
+
+D360 Bank 
+
+Little fuse 
+
+ISFP 
+
+FutureOn digital 
+
+Oscar
+
+
+Jatdev 
+
+
+Mashreq
+
+
+Enza
+
+
+Payever 
+
+Fpt software 
+
+Lafosse 
+
+AHBS 
+
+Prime 21 AG 
+
+Solvex
+
+
+CoorB
+
+
+Telgani
+
+
+Zero&one 
+
+Gradion 
+
+Riskrice 
+
+Lightium ( Switzerland) 
+
+Vero( usa) 
+
+Emerald
+
+
+Lego digital play(uk) 
+
+Helsing 
+
+Reluna 
+
+
+Carwah
+
+
+RE partners 
+
+
+Teradata
+
+
+Swisscom 
+
+Atos
+
+
+
+Juhi 
+
+
+Widebot 
+
+Multiverse computing 
+
+Talon one 
+
+Cirql one 
+
+Pixonal 
+
+
+Sarwa 
+
+
+Egabi solutions 
+
+
+Asml
+
+
+Pawapay 
+
+Omp 
+
+Patient21 
+
+Talk remit 
+
+Seez 
+
+Infovista
+
+
+Mondia 
+
+Nodeshift 
+
+IT visionary 
+
+PMG 
+
+Daopay 
+
+Smart sigma 
+
+AIM technologies 
+
+Nine mile 
+
+Nutanix 
+
+OMP 
+
+Sogeti 
+
+
+Grubhub 
+
+Taktile 
+
+Collibra 
+
+Synchron
+
+
+Pexprt
+
+
+Celfocus Software
+
+
+CNTXT 
+
+Algo
+
+
+Captivatelq 
+
+Ada meher 
+
+
+Forte cloud 
+
+Sanna commerce 
+
+Crossover 
+
+Fraus
+
+
+Vidscola 
+
+Intercom
+Coorb
+
+
+
+Ineffable intelligence 
+
+IPRally
+
+
+MDX solutions middle East 
+
+Lips healthcare 
+
+Qanoniah 
+
+Gs1 egypt 
+
+Peerlogic 
+
+Strava 
+
+Payr 
+
+Viavi solutions 
+
+
+
+
+
+Hrdf 
+
+Sundday 
+
+Code zone 
+
+Saned health 
+
+Burgan Bank
+
+
+Aramco digital 
+
+Mansoft 
+
+Teoresi group 
+
+Vistra 
+
+Voize (germany) 
+
+Wio Bank 
+
+Ocucon 
+
+Mandolin ( USA )
+
+OmarS
+
+Hyre 
+
+Pylon 
+
+Bcg x 
+
+Spendhq 
+
+Masrpay 
+
+Nawy 
+
+Cloud 11 
+
+Soulco
+
+
+Jeel 
+
+Aspire Jordan 
+
+Orange cyberdefense 
+
+Tgs(hpc) 
+
+Abbeal 
+
+
+Intact 
+
+Bryntum 
+
+Saudi credit information 
+
+Umatr 
+
+Amana 
+
+Thiqal 
+
+Sary 
+
+Eskola
+
+
+Paralead 
+
+Waffarha 
+
+iOCO 
+
+Omarseifelnasr 
+
+FortStak 
+
+Empiric 
+
+
+DNB
+
+
+Onmed
+
+
+Index holding 
+
+Sutherland( devsecops) 
+
+Awali 
+
+English Central 
+
+Edenred Italy 
+
+UST 
+
+Ninetech 
+
+Atlas copco 
+
+Tech9 
+
+Hydrosat 
+
+D4 insight 
+
+Fulcrum digital 
+
+Erada 
+
+Saqr 
+
+Exceeders
+
+
+G2i
+
+
+Baseet 
+
+Eldelta electronic systems 
+
+Uney
+
+
+NexaTG
+
+
+Quantuma 
+
+
+Montash 
+
+Flynas 
+
+Intaso(uk) 
+
+Tamem
+
+
+Captello 
+
+Yelp 
+
+Qonto 
+
+Center3
+
+
+Sofia stars 
+
+The exploration company 
+
+
+Vultara 
+
+Wisys 
+
+Salam
+Cloudzlab( salesforce) 
+
+Seera 
+
+IQVIA 
+
+Visible stars
+
+ICT misr
+
+Unzer ( germany)
+
+
+
+Saudi Central Bank
+
+Nupco
+
+Techvera
+
+Innosoft
+
+Protiviti middle East
